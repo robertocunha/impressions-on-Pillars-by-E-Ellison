@@ -1,5 +1,6 @@
 import React from "react";
 import ReactDOM from "react-dom/client";
+import { Presentation } from "../src/Presentation";
 
 describe("Presentation", () => {
     it("Shows the track name", () => {
