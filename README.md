@@ -13,7 +13,7 @@ After listening to E. Ellison’s album “Pillars” two or three times, I felt
 
 My musical background was shaped in Brazilian samba circles. I became one of many sambistas. Many of us are joyfully satisfied with bringing to life the art of making music that makes people sing, dance, and dream. It is an ancient and exuberant art, and it is an honor to participate in it.
 
-But some of us dream of a samba that contains singing, dancing, and dreaming, yet is also *'flexible and varied enough to adapt to the lyrical movements of the soul, the undulations of fantasy, the jolts of consciousness.'*
+But some of us dream of a music that contains singing, dancing, and dreaming, yet is also *'flexible and varied enough to adapt to the lyrical movements of the soul, the undulations of fantasy, the jolts of consciousness.'*
 
 For me, “Pillars” is a discourse on how this kind of task can be carried out. Even in tracks where the rhythm is less pronounced, I feel like I can dance. With my body, with my mind. Even in tracks where I don’t understand the lyrics (I don’t comprehend English), I feel like I can sing along. It is an album that is both sophisticated and accessible.
 
